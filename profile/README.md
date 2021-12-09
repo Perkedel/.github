@@ -38,3 +38,4 @@ You can also refer to links
 
 # Links
 - Joel's account collections https://cointr.ee/joelwindows7
+- Go to Odysee now https://odysee.com/$/invite/@JOELwindows7
