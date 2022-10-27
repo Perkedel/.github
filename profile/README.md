@@ -39,3 +39,6 @@ You can also refer to links
 # Links
 - Joel's account collections https://cointr.ee/joelwindows7
 - Go to Odysee now https://odysee.com/$/invite/@JOELwindows7
+
+# P.S.
+- If you that itch comment against Kart Kids published by SokPop, ignore it! That was Joel's stance against egregious paywall over a too simple game could be a freeware **from serveral years ago**. Today Joel already bought it, despite all the sloppy apology. And peck you, Google!! Rank that down!!!
